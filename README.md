@@ -13,7 +13,7 @@
 
 </p>
 
-🧗🏼‍♂️ I am building my path in this career, so you will be able to follow my progress from the very beginning since I am going to upload regularly every new learning.
+👷🏻‍♂️ I am building my path in this career, so you will be able to follow my progress from the very beginning since I am going to upload regularly every new learning.
 
 </p>
 
