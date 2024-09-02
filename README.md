@@ -1,7 +1,7 @@
 # Hey there! 😉
 ## I'm Jorge, it's a pleasure to have you here! 👋🏼
 
-🇧🇷 I was born and raised in São Paulo/Brazil, am **passionate about Martial Arts and Technology**, and graduated in Business Administration. I have worked in many areas such as Sales, Marketing, Customer Service and Logistics; nowadays I am transitioning  to IT, more precisely to Cloud Computing and Machine Learning. Although I love tech, my life took a different path and I couldn't study it from an early age.
+I was born and raised in São Paulo/Brazil, am **passionate about Martial Arts and Technology**, and graduated in Business Administration. I have worked in many areas such as Sales, Marketing, Customer Service and Logistics; nowadays I am transitioning  to IT, more precisely to Cloud Computing and Machine Learning. Although I love tech, my life took a different path and I couldn't study it from an early age.
 
 </p>
 
